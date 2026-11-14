@@ -225,4 +225,4 @@ Prey Game is offered as a complete free version with all features and updates in
 Don't miss out on the chance to experience Prey Game. **Download now and save mankind from the alien threat!**
 
 ---
-**Last updated:** 2026-11-14 08:34:14 UTC
+**Last updated:** 2026-11-14 15:31:59 UTC
